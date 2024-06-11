@@ -21,7 +21,7 @@
 - [LinkedIn](https://www.linkedin.com/in/samir-aldana-nizama-579587260/)
 - [Email](samirnizama13@gmail.com)
 
-¡Gracias por visitar mi perfil! Conectemos y construyamos algo increíble juntos. 🚀
+
 
 
 <!---
